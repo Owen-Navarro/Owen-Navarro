@@ -12,7 +12,7 @@ J'aime explorer de nouvelles technologies, créer des sites web et coder des pro
 ---
 
 ## 🔗 Projets en vedette
-- 🌐 Mes sites web 
+- 🌐 Site web que j'ai fais (TIC-TAC-TOE, Fansite) 
 
 ---
 
