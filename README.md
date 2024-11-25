@@ -17,7 +17,7 @@ J'aime explorer de nouvelles technologies, créer des sites web et coder des pro
 ---
 
 ## 📫 Me contacter
-- **Email :** [navarro.owen.2308@example.com](mailto:navarro.owen.2308@example.com)
+- **Email :** [navarro.owen.2308@gmail.com](mailto:navarro.owen.2308@gmail.com)
 
 ---
 
