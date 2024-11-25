@@ -18,7 +18,7 @@ J'aime explorer de nouvelles technologies, créer des sites web et coder des pro
 
 ## 📫 Me contacter
 - **Email :** [navarro.owen.2308@gmail.com](https://mail.google.com/mail/u/0/?to=navarro.owen.2308@gmail.com&fs=1&tf=cm)
-- **LinkedIn :** [Mon profil LinkdIn] (https://www.linkedin.com/in/owen-navarro-5ab89a33a/)
+- **LinkedIn :** [Mon profil LinkdIn](https://www.linkedin.com/in/owen-navarro-5ab89a33a/)
 
 ---
 
